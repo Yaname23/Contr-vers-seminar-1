@@ -1,1 +1,0 @@
-# Contr-vers-seminar-1
